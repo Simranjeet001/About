@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Simranjeet
-- 🌱 I’m currently learning in Computer programming
+- 🌱 I'm currently studying computer programming.
 - 💞️ I’m looking to collaborate on projects
 - 📫 reach me at : sainisimranpb12@gmail.com
 
